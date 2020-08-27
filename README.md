@@ -1,0 +1,2 @@
+# uyulapkcoy
+Lisensi
